@@ -1,0 +1,2 @@
+# sucucu
+deneme 1
